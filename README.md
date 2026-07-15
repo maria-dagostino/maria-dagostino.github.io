@@ -28,4 +28,4 @@ I am a Data Analyst with a creative background and a strong interest in sustaina
 ## Links
 
 - LinkedIn: https://www.linkedin.com/in/maria-d-agostino
-- Portfolio: coming soon
+- Portfolio: visit the website
